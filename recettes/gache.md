@@ -30,15 +30,67 @@ Ingrédients du pétrissage
 - Sucre semoule : 150 g
 - Levure : 10 g
 - Levain levure : 660 g
-- 
+
 Fin de pétrissage
 - Sucre semoule : 150 g
 - Beurre : 250 g
 - Rhum : 50 g
 
+Levain levure
+3 heures avant le pétrissage, mélanger au batteur la farine, le lait froid et la levure. Laisser fermenter 3 heures à température ambiante.
 
 ---
 
-1. Adjust oven rack to middle position and preheat oven to 400°F. Combine cheeses in a large bowl. Transfer 1/3 of cheese mixture to a separate bowl and set aside. Add cream, garlic, and thyme to cheese mixture. Season generously with salt and pepper. Add potato slices and toss with hands until every slice is coated with cream mixture, making sure to separate any slices that are sticking together to get the cream mixture in between them.
-2. Grease a 2-quart casserole dish with butter. Pick up a handful of potatoes, organizing them into a neat stack, and lay them in the casserole dish with their edges aligned vertically. Continue placing potatoes in casserole, working around the perimeter and into the center until all potatoes have been added. Potatoes should be very tightly packed. If necessary, slice additional potato, coat with cream mixture, and add to casserole (see note). Pour excess cream/cheese mixture evenly over potatoes until the mixture comes half way up the sides of the casserole. You may not need all excess liquid (see note).
-3. Cover tightly with foil and transfer to oven. Bake for 30 minutes. Remove foil and continue baking until top is pale golden brown, about 30 minutes longer. Carefully remove from oven, sprinkle with remaining cheese, and return to oven. Bake until deep golden brown and crisp on top, about 30 minutes longer. Remove from oven, let rest for a few minutes, and serve.
+MÉTHODE DE TRAVAIL
+Température de base : 48 °C à 52 °C.
+
+Incorporation
+Au batteur, mettre tous les ingrédients du pétrissage dans la cuve.
+
+Frasage
+Environ 3 minutes en 1re vitesse.
+
+Pétrissage
+Environ 5 minutes en 2e vitesse.
+
+Incorporation
+Ajouter progressivement, le sucre, le beurre et le rhum en 1re vitesse, jusqu'au lissage de la pâte.
+
+Consistance
+Pâte bâtarde.
+
+Température
+Pâte à 23 °C.
+
+Pointage
+Environ 2 heures 30 minutes.
+
+Pesage
+Pâtons de 325 g.
+
+Mise en forme
+Bouler.
+
+Détente
+Environ 30 minutes.
+
+Façonnage
+En bâtards courts. Déposer les pâtons sur plaques recouvertes de papier cuisson.
+
+Apprêt
+Environ 12 heures à 3 °C, puis 4 heures à 27 °C.
+
+Finition
+Passer les pâtons quelques minutes à 3 °C afin de faciliter le lamage.
+
+Dorage
+À l'œuf.
+
+Lamage
+1 coup de lame.
+
+Cuisson
+Environ 25 minutes, à 160 °C au four à sole.
+
+Ressuage
+Sur une grille.
